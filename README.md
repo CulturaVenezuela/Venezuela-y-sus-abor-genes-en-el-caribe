@@ -1,1 +1,1 @@
-# Venezuela-y-sus-abor-genes-en-el-caribe
+# Venezuela-y-sus-aborigenes-en-el-caribe
